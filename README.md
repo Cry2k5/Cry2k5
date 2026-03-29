@@ -17,7 +17,7 @@ Full-stack developer passionate about building cross-platform applications and s
 
 ## 📬 How to reach me?
 - **GitHub:** [@Cry2k5](https://github.com/Cry2k5)
-- **Facebook:** (https://www.facebook.com/anh.huahuynh.5)
+- **Facebook:** [@HUAHUYNHANH](https://www.facebook.com/anh.huahuynh.5)
 - **Open to:** Collaborations, contributions, and discussions
 
 
